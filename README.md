@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Space-Cadet-12
+- 👀 I’m interested in computers and IT
+- 🌱 I’m currently learning at Texas A&M University
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me ... do't
